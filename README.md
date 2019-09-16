@@ -1,2 +1,2 @@
 # Rita
-Rita-ฮาบร
+Rita-ฮา
