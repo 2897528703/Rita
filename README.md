@@ -1,2 +1,2 @@
 # Rita
-Rita-Œ“
+Rita-‰Ω†Â•Ω
